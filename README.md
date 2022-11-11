@@ -1,1 +1,1 @@
-# Personal website accompanied by memes and whatnot
+# Personal website and whatnot
